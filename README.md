@@ -2,7 +2,7 @@ Hey, I'm Thomas Perez 👋
 
 **Cybersecurity Graduate · Apple Specialist · US Navy Veteran**  
 📍 Houston, Texas &nbsp;|&nbsp; 🎓 A.A.S. Cybersecurity — Houston City College '26  
-🔗 [LinkedIn](https://www.linkedin.com/in/tperez-sec) &nbsp;|&nbsp; 📧 Open to opportunities
+🔗 [LinkedIn](http://www.linkedin.com/in/thomasperezhouston) &nbsp;|&nbsp; 📧 Open to opportunities
 
 ---
 
